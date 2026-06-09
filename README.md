@@ -8,4 +8,4 @@ $${\color{#ed8c24}\text{i'm 17yo, genderfluid and use she/it pronouns. pref fem/
 $${\color{#ffb463}\text{usually ill be around docks and either joining or hosting my own roleplays.}}$$
 $${\color{#ed8c24}\text{feel free to interact and c+h anytime, especially in roleplays! i don't bite :)}}$$
 $${\color{#ffb463}\text{↑ i have audhd and suspected bpd, if i do anything wrong please tell me about it! ↑}}$$
-$${\color{#ed8c24}\text{i'm a gourdy fictkin, doubles are okay - please don't actually treat me like a child.}}$$
+$${\color{#ed8c24}\text{i'm a gourdy fictkin, doubles are okay - don't treat me like an actual child.}}$$
